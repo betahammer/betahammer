@@ -14,6 +14,9 @@
         <br><br>
         esfj ㅤ7w8 ㅤsp/so ㅤ748 ㅤ[S]lu/A/i ㅤ[A]oHxVeG ㅤlawful evil ㅤsanguine ㅤILE ㅤELVF
         <br><br>
+        <div align="center">
+        <img alt="GitHub watchers" src="https://img.shields.io/github/watchers/synvergence/synvergence?style=plastic&label=%E3%85%A4%20%E3%85%A4%E3%85%A4%20%E3%85%A4squidswag%E3%85%A4%20%E3%85%A4(%CB%B6%3E%E2%A9%8A%3C%CB%B6)%E3%85%A4%20%E3%85%A4%E3%85%A4%20%E3%85%A4&color=b96e84">
+        </div>
       </b>
   </div>
     
