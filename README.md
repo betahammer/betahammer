@@ -14,6 +14,7 @@
         <br><br>
         esfj ㅤ7w8 ㅤsp/so ㅤ748 ㅤ[S]lu/A/i ㅤ[A]oHxVeG ㅤlawful evil ㅤsanguine ㅤILE ㅤELVF
         <br><br>
+        ![](https://komarev.com/ghpvc/?username=synvergence&color=b96e84&style=plastic&abbreviated=true&label=squid+++swag)
       </b>
   </div>
     
@@ -25,7 +26,8 @@
   <br>
   <div align="right">
   <img src="https://files.catbox.moe/oragsq.png" width="300px" align="right"> 
-    <br><br><br> <b>basic ㅤdni ㅤcrit. . . i ㅤwill ㅤblock/hide ㅤfreely, ㅤso ㅤtell ㅤme ㅤif ㅤi'm ㅤcovering ㅤsome1 ㅤplease!
+    <br><br><br><br>
+    <b>basic ㅤdni ㅤcrit. . . i ㅤwill ㅤblock/hide ㅤfreely, ㅤso ㅤtell ㅤme ㅤif ㅤi'm ㅤcovering ㅤsome1 ㅤplease!
     <br>
     i ㅤhave ㅤa ㅤpartner ㅤwho ㅤ<i>doesn't ㅤplay ㅤponytown.</i>  ㅤㅤdo ㅤnot ㅤflirt ㅤwith ㅤme ㅤregardless ㅤor ㅤi ㅤwill ㅤ<ins>permablock</ins> ㅤyou.
     <br>
