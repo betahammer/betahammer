@@ -14,7 +14,6 @@
         <br><br>
         esfj ㅤ7w8 ㅤsp/so ㅤ748 ㅤ[S]lu/A/i ㅤ[A]oHxVeG ㅤlawful evil ㅤsanguine ㅤILE ㅤELVF
         <br><br>
-        ![](https://komarev.com/ghpvc/?username=synvergence&color=b96e84&style=plastic&abbreviated=true&label=squid+++swag)
       </b>
   </div>
     
