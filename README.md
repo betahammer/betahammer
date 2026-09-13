@@ -2,17 +2,17 @@
   <br>
   <img src="https://files.catbox.moe/xr0a2z.png">
 
-  <img src="https://files.catbox.moe/prpq42.png" style="width:200px;" alt="CLOVER">
+  
    <div align="center"><b><ins>eng</ins>/fr</b> <br> <i>i ㅤam ㅤstill ㅤlearning ㅤfrench . . . ㅤbe ㅤpatient ㅤplease. . .</i></div>
   <br>
     <div align="left">
   <img src="https://files.catbox.moe/fl6g40.png" width="300px" align="left"> 
       <br><br><br><br>
-      <b>clover : sys host ㅤㅤ(-16) ㅤ ㅤc+h ㅤfriends <ins>only</ins>ㅤ ㅤw2i ㅤcrowd + coverDiscomfort
+      <b>cal : sys host ㅤㅤ(-16) ㅤ ㅤc+h ㅤfriends <ins>only</ins>ㅤ ㅤw2i ㅤcrowd + coverDiscomfort
         <br><br>
       asd ㅤadhd ㅤspd ㅤgad ㅤmdd ㅤnpd ㅤc-did ㅤselec. mutism ㅤocd ㅤ+ others
         <br><br>
-        esfj ㅤ7w8 ㅤsp/so ㅤ748 ㅤ[S]lu/A/i ㅤ[A]oHxVeG ㅤlawful evil ㅤsanguine ㅤILE ㅤELVF
+        entj ㅤ6w5 ㅤsx/sp ㅤ684 ㅤR[L]oE/I/ ㅤ[M]CtwRG ㅤchaotic evil ㅤcholeric
         <br><br>
         <div align="center">
         <img alt="GitHub watchers" src="https://img.shields.io/github/watchers/synvergence/synvergence?style=plastic&label=%20%E3%85%A4%20%E3%85%A4%E3%85%A4%20%E3%85%A4squidswag%E3%85%A4%20%E3%85%A4(%CB%B6%3E%E2%A9%8A%3C%CB%B6)%E3%85%A4%E3%85%A4%20%E3%85%A4%E3%85%A4&color=%23cd7c84">
