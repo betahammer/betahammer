@@ -9,7 +9,7 @@
     mirror prnsㅤ & ㅤhe/it <br>
     crowd<ins>+</ins>cover discomfort <br>
     c+hㅤ<i>friends</i> only plz <br>
-    isfj 3w4 sp385 choleric <br>
+    entj 3w4 sp385 choleric <br>
     asd ㅤc-did ㅤocd <br>
     <a href="https://biohammer.atabook.org"> sign my ata</a>
   </div>
