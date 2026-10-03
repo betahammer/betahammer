@@ -11,7 +11,7 @@
     c+hㅤ<i>friends</i> only plz <br>
     isfj 3w4 sp385 choleric <br>
     asd ㅤc-did ㅤocd <br>
-    <a href="https://disorder.atabook.org"> sign my ata</a>
+    <a href="https://biohammer.atabook.org"> sign my ata</a>
   </div>
       <br><br><br><br><br>
       <hr>
