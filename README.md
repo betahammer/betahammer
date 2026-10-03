@@ -1,42 +1,28 @@
-<div align="center">
-  <br>
-  <img src="https://files.catbox.moe/xr0a2z.png">
-
-  
-   <div align="center"><b><ins>eng</ins>/fr</b> <br> <i>i ㅤam ㅤstill ㅤlearning ㅤfrench . . . ㅤbe ㅤpatient ㅤplease. . .</i></div>
-  <br>
-    <div align="left">
-  <img src="https://files.catbox.moe/fl6g40.png" width="300px" align="left"> 
-      <br><br><br><br>
-      <b>cal : sys host ㅤㅤ(-16) ㅤ ㅤc+h ㅤfriends <ins>only</ins>ㅤ ㅤw2i ㅤcrowd + coverDiscomfort
-        <br><br>
-      asd ㅤadhd ㅤspd ㅤgad ㅤmdd ㅤnpd ㅤc-did ㅤselec. mutism ㅤocd ㅤ+ others
-        <br><br>
-        entj ㅤ6w5 ㅤsx/sp ㅤ684 ㅤR[L]oE/I/ ㅤ[M]CtwRG ㅤchaotic evil ㅤcholeric
-        <br><br>
-        <div align="center">
-        <img alt="GitHub watchers" src="https://img.shields.io/github/watchers/synvergence/synvergence?style=plastic&label=%20%E3%85%A4%20%E3%85%A4%E3%85%A4%20%E3%85%A4squidswag%E3%85%A4%20%E3%85%A4(%CB%B6%3E%E2%A9%8A%3C%CB%B6)%E3%85%A4%E3%85%A4%20%E3%85%A4%E3%85%A4&color=%23cd7c84">
-        </div>
-      </b>
+  <div align="center" max-width="200px">
+    <br><br>
+    <!--betagraft-->
+    <div>
+    <img src="https://file.garden/aJ7ygju7_yp7XNCX/image_2026-10-03_050757665.png" width="300px" align="left">
+    <br><br><br>
+  <div align="center"> 
+    <ins>cal</ins>ㅤ or ㅤ<ins>hive</ins> <br>
+    mirror prnsㅤ & ㅤhe/it <br>
+    crowd<ins>+</ins>cover discomfort <br>
+    c+hㅤ<i>friends</i> only plz <br>
+    isfj 3w4 sp385 choleric <br>
+    asd ㅤc-did ㅤocd <br>
+    <a href="https://disorder.atabook.org"> sign my ata</a>
   </div>
-    
-  <br>
+      <br><br><br><br><br>
+      <hr>
+    </div>
+    <!--banhammer-->
     <div align="center">
-    <img src="https://files.catbox.moe/ixlkfl.png" width="1000px">
+      <img src="https://file.garden/aJ7ygju7_yp7XNCX/image_2026-10-03_050812996.png" width="350px" align="right">
+      <br><br><br>
+      <details> <summary>my friends</summary> <a href="">sunkist</a> ... this doesnt lead anywhere because i forgot her github</details> <br>
+      <details> <summary>fandoms im in</summary> phighting, tmirb, rochas313, tsos, hwwhp, frozen soul, regretevator, ihasafacelulz, brandonworks, cdarchive, seildirectory, electric dreams, roblox (its lore and stuff (redcliff + shit)), bad things, homestuck, letters from 16, sfawtde, deltarune, undertale, among us, among us show, life steal, life series, strength smp, (barely) unstable smp, fnaf, fnaf world, typology, creepypasta, eddsworld, dhmis, die of death, kataotwb, tadc, backrooms, backrooms movie, phm, tpobawf, donnie darko, blocktales, hlvrai, mcsm, construction, animal hospital, buddy, danganronpa, find the markers, ultrakill, gasa4, moral orel, meleeniacs, minesweeper, baldis basics, poppy playtime, and alot more...</details> <br>
+      <details> <summary>people of the</summary> <br> <img src="https://file.garden/aJ7ygju7_yp7XNCX/image_2026-10-03_053453264.png"> <br> people of the is my bunch of friends if bunch of friends weren't playing characters and if it was like 3x larger. people of the is my big fat friend groupchat and we all love eachother and hold hands and just play games and vc and have fun... they mean the world to me and i'm writing this as an appreciation letter, though they dont play ponytown they'll never see it LOL. people of the has genuinely been my go to groupchat and everyone in there is like my goats. INCLUDING my boyfriend . hi cobalt... heuhuhh.. u dont read my githubs LOL this is me fucking around. anyways, i genuinely care and love for EVERYONE in this groupchat, if someone is sad i will be the one to step up!!! if someone is getting harassed i will STEP UP!!!! i defend my friends with my honor they all mean so much to me. my own little bunch of friends :)</details>
     </div>
     
-  <br>
-  <div align="right">
-  <img src="https://files.catbox.moe/oragsq.png" width="300px" align="right"> 
-    <br><br><br><br>
-    <b>basic ㅤdni ㅤcrit. . . i ㅤwill ㅤblock/hide ㅤfreely, ㅤso ㅤtell ㅤme ㅤif ㅤi'm ㅤcovering ㅤsome1 ㅤplease!
-    <br>
-    i ㅤhave ㅤa ㅤpartner ㅤwho ㅤ<i>doesn't ㅤplay ㅤponytown.</i>  ㅤㅤdo ㅤnot ㅤflirt ㅤwith ㅤme ㅤregardless ㅤor ㅤi ㅤwill ㅤ<ins>permablock</ins> ㅤyou.
-    <br>
-    i ㅤwill ㅤroleplay ㅤproblematic ㅤcharacters, ㅤi ㅤdo ㅤnot  ㅤcondone ㅤtheir ㅤactions,  ㅤnor ㅤwill ㅤi ㅤever. ㅤmerci beaucoup . .
-    </b>
-   </div>
-
- <img src="https://files.catbox.moe/k69s3o.png"> 
-
   </div>
