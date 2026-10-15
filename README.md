@@ -25,4 +25,3 @@
     </div>
     
   </div>
-$${\color{red}test \space \color{lightblue}test \space \color{lightgreen}test}$$
