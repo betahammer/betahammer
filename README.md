@@ -2,7 +2,7 @@
     <br><br>
     <!--lomedy-->
     <div>
-    <img src="https://files.catbox.moe/my08o4.png" width="300px" align="left">
+    <img src="https://files.catbox.moe/sy9mjy.png" width="300px" align="left">
     <br><br><br>
   <div align="center"> 
     <ins>cal</ins>ㅤ or ㅤ<ins>hive</ins> <br>
