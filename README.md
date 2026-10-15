@@ -1,6 +1,6 @@
   <div align="center" max-width="200px">
     <br><br>
-    <!--betagraft-->
+    <!--lomedy-->
     <div>
     <img src="https://files.catbox.moe/my08o4.png" width="300px" align="left">
     <br><br><br>
@@ -12,9 +12,8 @@
     <a href="https://biohammer.atabook.org"> sign my ata</a>
   </div>
       <br><br><br><br><br><br>
-      <hr>
     </div>
-    <!--banhammer-->
+    <!--flame-->
     <div align="center">
       <img src="https://files.catbox.moe/5ciqsd.png" width="350px" align="right">
       <br><br><br><br><br>
